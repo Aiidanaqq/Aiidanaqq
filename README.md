@@ -1,0 +1,1 @@
+This repository was created for submitting homework. There were no problems with execution. (Aidana Kokumova-COMCEH-23) 
